@@ -31,6 +31,42 @@ Whether you're a solo developer, a fast-growing startup, or a global enterprise,
 
 ---
 
+## 🎟️ BunnyCDN Promo Codes (May 2026) — 100% Verified
+
+Exclusive for our readers: Use the **8 verified promo codes** below to get **$5 each in free credits** — apply them one by one in your billing section to stack up to **$40 ($5×8) in total credits!**
+
+| Promo Code | Free Credits | Status |
+|------------|-------------|--------|
+| `BUNNYFIVER` | $5 Credits | ✅ 100% Working |
+| `TUTORBUNNY` | $5 Credits | ✅ Verified |
+| `THEGUIDEX` | $5 Credits | ✅ Verified |
+| `BLOGGINGASK` | $5 Credits | ✅ Verified |
+| `WPLOGOUT` | $5 Credits | ✅ Verified |
+| `GET5` | $5 Credits | ✅ Verified |
+| `JSMASTERY` | $5 Credits (once free trial expires) | ✅ Verified |
+| `BECLIPSE5` | $5 Credits | ✅ Verified |
+
+> 💡 **Pro Tip:** To unlock your account from the 14-day free trial period, deposit **$5 during sign-up** and claim **double credits** in your BunnyCDN account!
+
+### ✅ How to Redeem Your BunnyCDN Coupon Code
+
+1. 👉 [**Visit the Offer Page**](https://bunny.net?ref=tcxgyd91g1) ← Click here to activate the deal
+2. Click the **"Try Free For 14 Days"** button
+3. Enter your details and verify your email
+4. Add your account/billing details
+5. Apply coupon **`BUNNYFIVER`** (or any code above) in the billing section to claim your free credits
+6. 🎉 **Congratulations! Your free credits are unlocked!**
+
+> 🔁 **Stack Tip:** After applying the first code, go back to the billing/promo section and apply each remaining code one by one to stack all **$40 in free credits**.
+
+<div align="center">
+  <a href="https://bunny.net?ref=tcxgyd91g1">
+    <img src="https://img.shields.io/badge/🎟️%20Claim%20Your%20%2440%20Free%20Credits%20Now-FF6B35?style=for-the-badge" alt="Claim Free Credits">
+  </a>
+</div>
+
+---
+
 ## ⚡ Why bunny.net? Key Stats at a Glance
 
 | Metric | Value |
